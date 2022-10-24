@@ -1,0 +1,1 @@
+# Database-Management-for-Retail-Application[DBMS Retail Application DatabaseMFA.pdf](https://github.com/JatinKhudania1/Database-Management-for-Retail-Application/files/9854398/DBMS.Retail.Application.DatabaseMFA.pdf)
